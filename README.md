@@ -2,7 +2,7 @@
 
 http://kk.lovebits.uk/app/index.html?id=test
 
-http://1.uu6.us/app/index.html?id=test
+http://1.n-11.cn/app/index.html?id=test
 
 https://cj.lovebits.uk/app/index.html?id=test
 
