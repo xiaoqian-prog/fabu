@@ -6,4 +6,4 @@
 （密码0628）https://cj.lovebits.uk/app/index.html?id=test
 
 
-（密码0628）http://kk.lovebits.uk/app/index.html?id=test
+（密码0628）http://1.fostell.com/app/index.html?id=test
