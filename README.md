@@ -8,4 +8,4 @@
 （密码0628）https://cj.lovebits.uk/app/index.html?id=test
 
 
-（密码0628）http://1.520bits.uk/app/index.html?id=test
+（密码0628）http://2.520bits.uk/app/index.html?id=test
