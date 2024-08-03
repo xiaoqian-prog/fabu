@@ -5,7 +5,7 @@
 部分地区运营商屏蔽切换下线路
 
 
-（密码0628）https://a1.lovebits.uk/app/index.html?id=test
+（密码0628）http://a1.lovebits.uk/app/index.html?id=test
 
 
-（密码0628）https://b1.lovebits.uk/app/index.html?id=test
+（密码0628）http://b1.lovebits.uk/app/index.html?id=test
